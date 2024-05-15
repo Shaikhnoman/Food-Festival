@@ -1,6 +1,6 @@
 
 
-# Food fest 👨‍🍳
+# Food festival 👨‍🍳
 
 
 ---
